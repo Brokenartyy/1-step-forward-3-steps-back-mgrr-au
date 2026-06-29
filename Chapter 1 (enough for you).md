@@ -20,9 +20,9 @@ But I don't think that's true
 
 The faint sound of someone collapsing echoed across the cold metal floor of the headquarters, mingling with the heavy thud of the slammed door. Even the thunder outside seemed muted compared to that sound. He hadn't moved from the spot where he had first stepped in. He was still trying to steady his breathing, like someone who had just crossed a line that was never meant to be crossed. Understandably, this was the first time he had ever done something like this.
 
-He tried to walk through the headquarters hallway. For some reason, his head felt like it was spinning, as if an earthquake were hitting the room, even though everything was completely still. The longer he walked, the worse the tremor in his head—unquantifiable on the Richter scale—became.
+He tried to walk through the headquarters hallway. For some reason, his head felt like it was spinning, as if an earthquake were hitting the room, even though everything was completely still. The longer he walked, the worse the tremor in his head, unquantifiable on the Richter scale, became.
 
-He tried to take another step—just one more—but instead of moving forward, he fell to the ground. His body folded into itself, his armor scraping against the metal floor with a sharp clink.
+He tried to take another step, just one more, but instead of moving forward, he fell to the ground. His body folded into itself, his armor scraping against the metal floor with a sharp clink.
 
 All he could do was curl up in a fetal position on the cold surface. Not a single ounce of will remained to take even a single step forward. Still lying there, he glanced at his hands, only to see them coated in a thick layer of red. The longer he stared, the more the crimson seemed to pixelate, darkening and fading into the shadows.
 
@@ -46,7 +46,7 @@ Another person, whom Jack called "Doctor," greeted the unconscious cyborg with a
 
 Jack finally managed to open his eyelids. The dimly lit ceiling of the headquarters was still visible, though a red streak lingered around the corners of his eyes. The rain could still be heard pattering on the roof when Jack first woke up. The cool night air could still be felt leaking through the gaps in the headquarters doors. For the Doctor, the tranquility of the night that he should have felt had been completely replaced by panic. He had been trying to control the torrential flow of blood from Jack's body from the start, but no matter how many rolls he pressed against the wound, the red kept seeping through.
 
-While the Doctor was busy with Jack's wound, he suddenly saw a brightest red that was different from the others—more bluish than reddish—accompanied by a freezing skin surface.
+While the Doctor was busy with Jack's wound, he suddenly saw a brightest red that was different from the others, more bluish than reddish, accompanied by a freezing skin surface.
 
 "I'm fine, Doc."
 
