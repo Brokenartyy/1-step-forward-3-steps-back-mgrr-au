@@ -1,9 +1,14 @@
 <blockquote>
 <i>"You found someone more exciting
+
 The next second, you were gone
+
 And you left me there cryin', wonderin' what I did wrong
+
 And you always say I'm never satisfied
+
 But I don't think that's true
+
 'Cause all I ever wanted was to be enough for you"</i>
 
 — Enough For You, Olivia Rodrigo
