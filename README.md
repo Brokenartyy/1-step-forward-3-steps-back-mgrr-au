@@ -24,6 +24,9 @@ Twelve months later, he would learn that some relationships do not end quietly, 
 
 ---
 
+![Kudos](https://seeyoufarm.com)
+
+
 (the fresh au from ao3 oven I bring into github plate)
 
 (more chapters soon)
