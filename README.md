@@ -6,8 +6,6 @@
 
 **Summary**:
 
----
-
 After his marriage collapses, Raiden Jack finds himself trapped in a mind that cannot forget. Every memory remains archived, every mistake replaying without mercy.
 
 One quiet morning by a lake, he almost finds a way to silence it all.
