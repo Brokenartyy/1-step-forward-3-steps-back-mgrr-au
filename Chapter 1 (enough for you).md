@@ -1,3 +1,7 @@
+<div align="center">
+<h1>Chapter 1: [Enough For You]</h1>
+</div>
+
 <blockquote>
 <i>"You found someone more exciting
 
@@ -14,7 +18,7 @@ But I don't think that's true
 — Enough For You, Olivia Rodrigo
 </blockquote> 
 
-———
+---
 
 "I'm back, Doc."
 
