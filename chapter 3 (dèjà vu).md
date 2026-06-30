@@ -1,3 +1,7 @@
+<div align="center">
+<h1>Chapter 3: [Dèjà Vu]</h1>
+</div>
+
 <blockquote>
 <i>"So when you gonna tell her,
   
@@ -10,7 +14,7 @@ She thinks it's special,
 — Deja Vu, Olivia Rodrigo
 </blockquote>
 
-———
+---
 
 Saturday, December 2020
 
