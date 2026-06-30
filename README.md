@@ -1,5 +1,9 @@
 # 1-step-forward-3-steps-back-mgrr-au
 
+**Archive warnings**: *major character death*, *graphic depiction of violence*
+
+---
+
 **Summary**:
 
 ---
