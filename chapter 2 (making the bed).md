@@ -1,3 +1,7 @@
+<div align="center">
+<h1>Chapter 1: [Enough For You]</h1>
+</div>
+
 <blockquote>
 <i>"I'm so tired of bein' the girl that I am
  
@@ -8,7 +12,7 @@ And I'm playin' the victim so well in my head"</i>
 —Making The Bed, Olivia Rodrigo 
 </blockquote>
 
-———
+---
 
 Sunday, November 2020
 
