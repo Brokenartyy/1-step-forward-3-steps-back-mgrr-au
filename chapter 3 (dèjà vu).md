@@ -30,18 +30,19 @@ Every breath Jack took was laced with the synthetic, plasticky smell of old deco
 
 And perhaps it would have been better, if he could just forget entire years at a time.
 
-He pulled out the box where he kept his vinyl records. Inside were famous albums spanning from the 1970s to 2019. There was Dedicated to Markos III, which Jack preferred to call "Black Flower", all the way to the High School Musical soundtrack, his family's favorite during past Christmases.
+He pulled out the box where he kept his CD records. Inside were famous albums spanning from the 1970s to 2019. There was Dedicated to Markos III, which Jack preferred to call "Black Flower", all the way to the High School Musical soundtrack, his family's favorite during past Christmases.
 
 He picked out the High School Musical soundtrack, specifically choosing the song "All I Want," released in 2019.
-The blue-and-white, beach-themed vinyl cover, featuring a woman sitting at a piano, was exactly the same as he remembered. Even the song itself hadn't changed.
 
-He slid the record out of its sleeve, placed it onto the brand-new headquarters gramophone, and dropped the needle, giving the sound a distinct, unfamiliar texture he couldn’t quite name.
+The navy blue background, accompanied by Polaroid photos featuring the High School Musical cast, was exactly the same as he remembered. The cast may have changed their lives, but the song itself hadn't.
+
+He slid the CD out of its sleeve, placed it onto the brand-new headquarters stereo component system, and press the "play" button, giving the sound a distinct, unfamiliar texture he couldn’t quite name.
 
 The chorus and the refrain didn’t shift a single note.
 
 Neither did his memories.
 
-Unlike the vinyl spinning on the platter, Jack's family had changed completely. They were living their own lives now, choosing their own paths.
+Unlike the CD spinning on the platter, Jack's family had changed completely. They were living their own lives now, choosing their own paths.
 
 The warmth of that memory was gone, leaving only the cold reality of the headquarters. The delicate, acoustic notes of the song pulsed through the empty room, sounding more like a funeral march for his past than a holiday celebration. Jack closed his eyes, letting his carbon-fiber hands rest flat against the cold metal table, completely drowning in the static of things he couldn't delete.
 
@@ -97,6 +98,7 @@ Jack didn't answer.
 He couldn't.
 
 Because the terrifying truth was, he had.
+
 The choreography was identical. The way his left hand rested on a heavy shoulder, the way his body tilted to compensate for the height difference, it was all a cheap, dirty copy. Jack was recycling the exact same domestic affection he used to give his wife, but now he was serving it to the ghost of the man who had tried to slice his throat open in the badlands.
 
 "Do you get déjà vu, Jackass?" The man’s grin was visible in the reflection of the dark window, sharp and mocking. "Every time you look at the Christmas lights? Every time a song plays? Do you call her name when you're dreaming, or do you call mine?"
@@ -109,7 +111,7 @@ And whenever they turned past the recycled Christmas lights, the man's shadow on
 
 He leaned deeper into the hold, chasing the heavy, phantom weight on his lower back. He hated how perfectly the nightmare fit. He hated that his brain, desperate for any shred of warmth in this abandoned tomb of a headquarters, had cross-wired his memories of love with his addiction to a ghost.
 
-The vinyl skipped.
+The notes skipped.
 
 The melody settled, quiet and brutal.
 
@@ -118,6 +120,7 @@ Outside, December howled in white.
 Inside, Jack kept dancing.
 
 A glitching brain, erasing the lines.
+
 Blurring the real.
 
 Chasing the phantom.
